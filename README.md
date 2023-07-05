@@ -1,0 +1,13 @@
+Porscha vantrice barnett
+Keith Lexington Jenkins owner coinimp24@gmail.com SSN 461-75-0467 Keith Lexington Jenkins
+
+636-03-9492 porscha vantrice barnett- 👋 Hi, I’m @Pkj13
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Pkj13/Pkj13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
